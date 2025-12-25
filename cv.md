@@ -11,7 +11,7 @@
 
 ### MEWAR UNIVERSITY, 
 **_Rajasthan, india_**      
-##### 2025-DATE
+##### 2025-DATE...
 M. TECH. Environmental engineering
 
 ### BAYERO UNIVERSITY
